@@ -3,7 +3,7 @@
 
 # 🚀 Enhancing Emergency Care Through Data-Driven Excellence 🚀
 
-At **[Hospital Name]**, we’re committed to **transparency** and **continuous improvement**. Our **2024 Emergency Room reports** reveal both **strengths and opportunities**—here’s what we’ve learned:
+At **[Sanjeevani Advanced Medical Hospital]**, we’re committed to **transparency** and **continuous improvement**. Our **2024 Emergency Room reports** reveal both **strengths and opportunities**—here’s what we’ve learned:
 
 ---
 
